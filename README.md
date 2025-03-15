@@ -97,7 +97,7 @@ This ensures users always see **the latest jobs** without manual updates.
 
 ## **📞 Contact**
 👨‍💻 **Arjun Vishnubhai Prajapati**  
-📞 **8128781062
+📞 **+91 8128781062**
 📧 **[Email](prajapatiarjun2801@gmail.com)**  
-🔗 **[LinkedIn](https://linkedin.com/in/arjunprajapati2801)**
+🔗 **[LinkedIn](https://www.linkedin.com/in/prajapati-arjun-42310b268/)**
 
